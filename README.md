@@ -1,2 +1,1 @@
-
-[![Screenshot-20250515-121610-Tik-Tok.jpg](https://i.postimg.cc/FFYnTvNx/Screenshot-20250515-121610-Tik-Tok.jpg)](https://postimg.cc/7byVLpCC)
+[![Screenshot-20250512-181344-Firefox.jpg](https://i.postimg.cc/P5f2tNpB/Screenshot-20250512-181344-Firefox.jpg)](https://postimg.cc/7fcg9HNV)
